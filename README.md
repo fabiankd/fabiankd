@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @fabiankd
+- 👀 I’m interested in going to the gym. 
+- 🌱 I’m currently learning production processes and its automation
+- 📫 How to reach me fabiankd31@gmail.com
